@@ -1,1 +1,1 @@
-CodeChef Level-up-from-1star-to-2star Reattempt Problems (9 total)
+CodeChef Level-up-from-1star-to-2star (Can be Reattempted) Problems (9 total)
